@@ -4,3 +4,4 @@ May Daoud, zy21368@bristol.ac.uk, may03d
 Scarlett Hurford, cy21903@bristol.ac.uk, constscarlett
 Matilda Stokes, jl21579@bristol.ac.uk, matildarosevin
 Omnia Ali, dc24201@bristol.ac.uk, omnia18o8
+Barney Evershed, ih21562@bristol.ac.uk, bever1tbev
